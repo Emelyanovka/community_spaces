@@ -10,7 +10,7 @@ The community spaces that appeared in 2022 showed their efficiency and we are lo
 locations that have done calculations of their needs
 
 1. Ecovillage “Zeleni Kruchi”
-2. Ecovillage “Omelanivka”
+2. Ecovillage “Omelanivka” [fundraising here ukr] https://pomistya.club/proekty/17-budivnitstvo-budinku-tvorchosti/ 
 3. Ecovillage “Charivne” [fundraising here ukr](https://pomistya.club/proekty/68-spilnii-prostir-poselenya-charivne/)
 5. Ecovillage “Rosychi”
 6. Ecovillage Vasylivka [children's space](https://pomistya.club/proekty/66-eko-prostir-dlya-ditei-ta-doroslih/)
